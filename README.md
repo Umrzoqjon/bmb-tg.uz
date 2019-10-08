@@ -1,2 +1,2 @@
-# bmb-tg.uz
+# BMB Trade Group
 BMB Trade Group
